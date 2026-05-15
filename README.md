@@ -1,2 +1,2 @@
 # TINGKAT-KEHADIRAN-SISWA-DAN-DAMPAK-NYA-TERHADAP-PRESTASI-AKADEMIK
-Nama : Alif Anugrah Ramadhan Kelas : Sisfor A
+Nama : Alif Anugrah Ramadhan Nim : 2509116019 Kelas : Sisfor A
